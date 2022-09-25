@@ -1,1 +1,1 @@
-# Propel-Ventures-LLC-State-Wide-NFT
+# Propel Ventures, LLC, State-Wide NFT Crowdfunding Competition
